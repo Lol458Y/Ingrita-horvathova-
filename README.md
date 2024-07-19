@@ -1,0 +1,2 @@
+# Ingrita-horvathova-
+Payment method 
